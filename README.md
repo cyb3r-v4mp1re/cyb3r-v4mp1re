@@ -2,7 +2,7 @@
 hiii! my name is lena!!<br/>
 14 !!<br/>
 my fav color is #d0d7e5 and #e690a2 !!<br/>
-friends are my whole world, i love my friends !!<br/>
+friends are my whole world, i love my friends, im down to be friends with anyone new !!<br/>
 my fav characters/idols :<br/>
 -banbaleena (gobb)<br/>
 -caesar zeppeli, gyro zeppeli, leone abbacchio, risotto nero, rudol von stroheim (jjba)<br/>

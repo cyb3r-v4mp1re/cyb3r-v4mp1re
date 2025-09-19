@@ -10,7 +10,9 @@ my fav characters/idols :<br/>
 -withered chica (fnaf)<br/>
 -dahyun (twice)<br/>
 -chaeryeong (itzy)<br/>
--obelisk (from the obelisk analog horror)<br/>
+-obelisk (from the obelisk analog horror)
+-sha (walten files)
+-miss fuchi (junji ito)<br/>
 ## interests !!<br/>
 interests :<br/>
 -kpop<br/>

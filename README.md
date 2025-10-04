@@ -10,7 +10,7 @@ my fav characters/idols :<br/>
 -withered chica (fnaf)<br/>
 -dahyun (twice)<br/>
 -chaeryeong (itzy)<br/>
--obelisk (from the obelisk analog horror)<br/>
+-yujiro hanma (baki)<br/>
 -sha (walten files)<br/>
 -miss fuchi (junji ito)<br/>
 ## interests !!<br/>
@@ -27,6 +27,5 @@ interests :<br/>
 -jjba (main interest)<br/>
 -fnf<br/>
 ## lovemails to my friends and mooties/oomfs in law !!<br/>
-najm and shosho - you guys are so cool 👅🦶<br/>
-mango - MY CUTIE POOKIE PATOOTIE I MISS YOU SM HDGFHDGFHDGDFHHDG<br/>
-panka - omg my pukipárna ily<br/>
+shosho - cutie patootie 👅🦶<br/>
+emi - MY CUTIE POOKIE PATOOTIE I MISS YOU SM HDGFHDGFHDGDFHHDG<br/>

@@ -13,6 +13,7 @@ my fav characters/idols :<br/>
 -yujiro hanma (baki)<br/>
 -sha (walten files)<br/>
 -miss fuchi (junji ito)<br/>
+-aoi asahina (danganronpa)<br/>
 ## interests !!<br/>
 interests :<br/>
 -kpop<br/>
@@ -26,6 +27,7 @@ interests :<br/>
 -baki<br/>
 -jjba (main interest)<br/>
 -fnf<br/>
+-danganronpa<br/>
 ## lovemails to my friends and mooties/oomfs in law !!<br/>
 shosho - cutie patootie 👅🦶<br/>
 emi - MY CUTIE POOKIE PATOOTIE I MISS YOU SM HDGFHDGFHDGDFHHDG<br/>

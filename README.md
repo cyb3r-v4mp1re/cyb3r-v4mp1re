@@ -10,7 +10,7 @@ my fav characters/idols :<br/>
 -withered chica (fnaf)<br/>
 -dahyun (twice)<br/>
 -chaeryeong (itzy)<br/>
--yujiro hanma (baki)<br/>
+-kiyosumi kato (baki)<br/>
 -sha (walten files)<br/>
 -miss fuchi (junji ito)<br/>
 -aoi asahina (danganronpa)<br/>

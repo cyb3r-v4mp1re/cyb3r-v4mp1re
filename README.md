@@ -1,7 +1,6 @@
 ## about me !!<br/>
 hiii! my name is lena!!<br/>
-
-14 !!<br/>
+im 5teen, and feel free to use any pronouns<br/>
 friends are my whole world, i love my friends, im down to be friends with anyone new !!<br/>
 ## current interests !!<br/>
 interests :<br/>
@@ -16,4 +15,4 @@ interests :<br/>
 -fnf<br/>
 -danganronpa<br/>
 ## lovemails to my friends and mooties/oomfs in law !!<br/>
-emi - MY CUTIE POOKIE PATOOTIE I MISS YOU SM HDGFHDGFHDGDFHHDG<br/>
+emi - MY CUTIE I MISS YOU SM HDGFHDGFHDGDFHHDG<br/>
